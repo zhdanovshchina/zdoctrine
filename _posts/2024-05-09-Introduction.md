@@ -9,3 +9,5 @@ anything else we think is relevant to music lovers and musicians in the workers 
 
 This will be an ongoing collaborative project between myself (Sofia D.), and a few other comrades. We'll start with blog posts, and eventually 
 scale up to podcasts and other multi-media projects. 
+
+– Sofia D.
